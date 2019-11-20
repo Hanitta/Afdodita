@@ -1,2 +1,2 @@
-# Afdodita.github.io
+# Afdodita
 Fitness Club Afrodita
